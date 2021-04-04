@@ -24,9 +24,11 @@ In order to be successful, there are these tasks I must do, as well as others sh
 - [ ] Have kids
 - [ ] Not be homeless
 - [ ] Death Perhaps
+
 Also, I think these could help as well:
 - Have money
 - Have food
+
 But most importantnly, the most important thing that I think is important, is to be:
 1. Happy
 2. Don't be sad

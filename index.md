@@ -31,4 +31,4 @@ Also, I think these could help as well:
 
 But most importantnly, the most important thing that I think is important, is to be:
 1. Happy
-2. Don't be sad
+2. Not sad
